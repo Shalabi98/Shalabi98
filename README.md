@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shalabiimran98@gmail.com or +1 (814) 572-8399**
 
-- ⚡ Fun fact **I turn code into coffee**
+- ⚡ Fun fact **I turn coffee into code**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
